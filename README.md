@@ -1,6 +1,6 @@
 
 # 💫 About Me:
-    <br><br>🌿 I'm currently learning .
+    🌿 I'm currently learning .
 
 
 ## 🌐 Socials:
